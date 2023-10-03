@@ -14,5 +14,8 @@ Below android 10 users can directly use by allowing inapp permission while andro
 ***Thats it about the tool.Below i am posting a short video of how to use it.
 Enjoy Modding Everyone🥰❣️❣️***
 
+*****Tool Preview*****
+https://mega.nz/file/0gVSGTbZ#5-XUhR7N9Xm7Dg_wDs6PzFz-rOclkf-fA0al0TRQSEo
+
 Love from FuegoMods and me(@allan_fuego)
 -
